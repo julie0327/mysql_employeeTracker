@@ -16,4 +16,3 @@ SO THAT I can organize and plan my business
 
 ## Video
 https://drive.google.com/file/d/1xfxi36rKF1CYWHsA3eWli3LMyG5yPUSF/view?usp=sharing
-
