@@ -17,4 +17,3 @@ SO THAT I can organize and plan my business
 ## Video
 https://drive.google.com/file/d/1xfxi36rKF1CYWHsA3eWli3LMyG5yPUSF/view?usp=sharing
 
-https://github.com/julie0327/mysql_employeeTracker/blob/main/Screen%20Recording%202023-09-06%20at%209.51.03%20PM.mov
